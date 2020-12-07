@@ -1,4 +1,4 @@
-# botst4rz
+# bot MITSUHA
 BOT WHATSAPP HP MITSUHA MIYAMIZU
 
 ### Alat dan Bahan
